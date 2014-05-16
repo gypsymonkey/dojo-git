@@ -1,15 +1,31 @@
 # Começo
 
-Era uma vez, uma menina mentalmente doente
-que achava que era a "chapeuzinho vermelho".
-Ela carregava uma cesta cheia de acarajés.
+Era uma vez, em uma história negra de negros escravos, uma menina mentalmente doente
+que achava que era a "chapeuzinho Negro de bigodinho de pedreiro".
+Ela carregava uma cesta cheia de bombas terroristas(c4).
 
-Ela partiu em sua jornada.
+Ela partiu em sua jornada para achar seu salvador ZOHAN.
+
+Durante os primeiros dias de viagem, Chapeuzinho Preto se deparou com uma encruzinhada. No meu da encruzinhada havia um sapo com o nome "Lucas" custurado na boca. Chapeuzinho, em toda sua ingenuidade juvenil, chutou o sapo, o que causou um abalo no espaço tempo continuo, materializando o Grande Elemental de Fumaça boladão Marley das Putarias.
 
 # Meio
 
+Negro!
+Ela sabia quer dar nao era uma solução negramente boa, então resolveu explodir todo.
+Nigga nigga nigga one hundred percent nigga!
+Nigga nigga nigga i am two hundred percent nigga!
+Nigga nigga nigga polices hates us coz our dicks is bigga
+Essa Musica era um hino para nosso senhor salvador, Big Afro Gsus
+Ela chapeuzinho era uma menina muito bonita isso quem disse foi Steve Wonder.
+Steve meu caro steve mal sabia ele que era cego ou tudo era preto(Nigga!).
+
 ## Batalha
 
+A batalha surge entre o bem e o mal entre o branco e o preto, entre a luz e as trevas
+O lobo do lado do white devil, tinha todas as armas mas nos temos Gsus de nosso lado e 
+vamos vencer, Ao nosso lado temos as melhores pessoas Clevland, Steve Wonder, O Kratos 
+preto nao preciso dizer o resto ele mata todos so pq ta puto msm.
+ 
 As armas do lobo boladão de Recife incluiam:
 
 - Spray de pimenta
