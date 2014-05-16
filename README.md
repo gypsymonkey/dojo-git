@@ -71,5 +71,5 @@ Arquivo para auxilio do git
     - bisect [good/bad]
         - Diz que se o commit atual é bom ou ruim
             - bisect [good/bad] [commit]
-            - diz se [commit] é bom ou ruim
+                - diz se [commit] é bom ou ruim
 
