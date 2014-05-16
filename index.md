@@ -11,6 +11,8 @@ Ela carregava uma cesta cheia de acarajés.
 As armas do lobo boladão de Recife incluiam:
 
 - Spray de pimenta
+- Portal Gun
+- Blade of Chaos
 - Taser
 - Granada de efeito moral
 - Garras afiadas
