@@ -8,7 +8,7 @@ Ela carregava uma cesta cheia de acarajés.
 
 ## Batalha
 
-As armas do lobo mau incluiam:
+As armas do lobo boladão de Recife incluiam:
 
 - Spray de pimenta
 - Taser
