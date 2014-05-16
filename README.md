@@ -70,6 +70,6 @@ Arquivo para auxilio do git
     - Por exemplo, se um commit fez com que o projeto pare de compilar, então ele o ruim, se ele continua compilando, ele é bom
     - bisect [good/bad]
         - Diz que se o commit atual é bom ou ruim
-        - bisect [good/bad] [commit]
-        - diz se [commit] é bom ou ruim
+            - bisect [good/bad] [commit]
+            - diz se [commit] é bom ou ruim
 
