@@ -40,4 +40,6 @@ E conta a história de por que estava chorando em um lugar tão remoto.
 
 O pínoquio levou spray de pimenta, foi posto numa pokebola, nequanto levava choque de um taser e
 começou a chorar de baixo da árvore por lembrar do olhar intimidador do lobo boladão enquanto 
-tirava a bala de borracha da cara. Ela o amou pro resto da vida e viveram felizes para sempre!
+tirava a bala de borracha da cara. Ela o amou pro resto da vida e viveram felizes para sempre 
+em uma casa de chocolate protegida pelos polícias da UFAL uma vez que sua casa era visada pelos 
+fãs de chocolate do afeganistão!
