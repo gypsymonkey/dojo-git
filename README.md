@@ -73,3 +73,10 @@ Arquivo para auxilio do git
             - bisect [good/bad] [commit]
                 - diz se [commit] é bom ou ruim
 
+- push 
+    - Manda os commits para o servidor
+
+- pull
+    - Baixa os arquivos do servidor
+
+
