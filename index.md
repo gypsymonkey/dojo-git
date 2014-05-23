@@ -19,6 +19,15 @@ Essa Musica era um hino para nosso senhor salvador, Big Afro Gsus
 Ela chapeuzinho era uma menina muito bonita isso quem disse foi Steve Wonder.
 Steve meu caro steve mal sabia ele que era cego ou tudo era preto(Nigga!).
 
+Stive começou a cantar:
+
+Vamo dançar tudo nu, tudo nu.
+Tudo com o dedo no cu. Menos eu.
+encontrei Eric chupão no caminho e ele me deu uma lista nova de itens:
+- cu do italo
+- pokeball com balduino como pokemon
+- 
+
 ## Batalha
 
 A batalha surge entre o bem e o mal entre o branco e o preto, entre a luz e as trevas
